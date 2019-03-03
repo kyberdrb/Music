@@ -2,60 +2,52 @@
 
 ## Slovenske
 
+* Horkyze Slize - Horna Dolna
 * Katka Knechtova - Do Batozka
+* Lojzo - Schöne Náci
 * Miro Jaroš ft. Petra Humeňanská - Na Dne Mora
 * Peter Cmorik - Zivotne cesty
-* Horkyze Slize - Horna Dolna
 * Zuzana Smatanova - Ceresne
-* Lojzo - Schöne Náci
 
 ## Zahranicne
 
-* Miley Cyrus - Wrecking Ball
-* Swedish House Mafia - Greyhound
-* Swedish House Mafia - One
-* deadmau5 - Aural Psynapse
-* deadmau5 - Fn Pig
-* deadmau5 - Closer
-* deadmau5 - There Might Be Coffee
-* deadmau5 - Suckfest9001
-* deadmau5 ft. Grabbitz - Let Go
-* deadmau5 - Imaginary Friends
-* deadmau5 - Phantoms Can't Hang
-* deadmau5 - Right This Second
-* deadmau5 - My Pet Coelacanth
-* deadmau5 ft. Wolfgang Gartner - Channel 42
-* Tiesto ft. Sneaky Sound System - I Will Be Here
-* Little Boots - Earthquake
-* Pendulum - The Island Part 1
-* Pendulum - 9000 Miles
-* Will I Am - This Is Love
-* Deadmau5 - Strobe
-* Sultan the Magnificient Main Theme
-* Tommy Largo - New Rhythm
-* Coldplay - Up & Up
-* Coldplay - Adventure of a Lifetime
-* Kanye West ft. Kid Cudi - Welcome to the Heartbreak (Intro - basove solo)
-* Game of Thrones Intro Theme
-* Skyrim - Dragonborn (Dovahkin) Main Theme
-* Calvin Harris ft. Rihanna - This Is What You Came For
-* Inna - More Than Friends
 * Call of Duty Modetn Warfare 2 Main Theme
-* Wolfgang Gartner - Undertaker
-* Wolfgang Gartner - There and Back
-* Kygo ft. Kodaline - Raging
+* Calvin Harris ft. Rihanna - This Is What You Came For
+* Coldplay - Adventure of a Lifetime
+* Coldplay - Up & Up
+* Deadmau5 - Closer
+* Deadmau5 - Fn Pig
+* Deadmau5 - Strobe
+* Deadmau5 - Suckfest9001 (1:11-1:15)
+* Deadmau5 - There Might Be Coffee
+* Deadmau5 ft. Grabbitz - Let Go
+* Deadmau5 ft. Wolfgang Gartner - Channel 42
+* Game of Thrones Intro Theme
+* Inna - More Than Friends
+* Kanye West ft. Kid Cudi - Welcome to the Heartbreak (Intro - basove solo)
+* Little Boots - Earthquake
+* Little Boots - Earthquake (Fytch Remix)
 * Michael Canitrot - Young Forever
+* Pendulum - 9000 Miles
+* Pendulum - The Island Part 1
+* Safri Duo - Baya Baya
+* Skrillex - Breathe (ft. Krewella & Ellie Goulding) (BnkR Extended Mix)
 * Skrillex - Summit
 * Skrillex Ft. Krewella - Breathe
-* Skrillex - Breathe (ft. Krewella & Ellie Goulding) (BnkR Extended Mix)
-* Safri Duo - Baya Baya
-* Syd Matters - Obstacles
+* Skyrim - Dragonborn (Dovahkin) Main Theme
+* Sultan the Magnificient Main Theme
+* Swedish House Mafia - Greyhound
+* Swedish House Mafia - One
+* Tiesto ft. Sneaky Sound System - I Will Be Here
+* Tommy Largo - New Rhythm
+* Will I Am - This Is Love
+* Wolfgang Gartner - There and Back
 
 ## Vianocne
 
-* Rolnicky
 * Do mesta betlehema
 * Dominika Mirgova - Stastne a Vesele
-* Michael Bublee - Feliz Navidad
 * Marriah Carrey - All I Want For Christmas
+* Michael Bublee - Feliz Navidad
+* Rolnicky
 * Wham - Last Christmas
