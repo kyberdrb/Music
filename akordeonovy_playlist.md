@@ -11,7 +11,6 @@
 
 ## Zahranicne
 
-* Call of Duty Modetn Warfare 2 Main Theme
 * Calvin Harris ft. Rihanna - This Is What You Came For
 * Coldplay - Adventure of a Lifetime
 * Coldplay - Up & Up
@@ -23,6 +22,7 @@
 * Deadmau5 ft. Grabbitz - Let Go
 * Deadmau5 ft. Wolfgang Gartner - Channel 42
 * Game of Thrones Intro Theme
+* Hallelujah
 * Inna - More Than Friends
 * Kanye West ft. Kid Cudi - Welcome to the Heartbreak (Intro - basove solo)
 * Little Boots - Earthquake
@@ -30,6 +30,8 @@
 * Michael Canitrot - Young Forever
 * Pendulum - 9000 Miles
 * Pendulum - The Island Part 1
+* Portal 1 - Still Alive
+* Rita Ora - Anywhere
 * Safri Duo - Baya Baya
 * Skrillex - Breathe (ft. Krewella & Ellie Goulding) (BnkR Extended Mix)
 * Skrillex - Summit
