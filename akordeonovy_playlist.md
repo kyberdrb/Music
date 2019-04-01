@@ -21,6 +21,7 @@
 * Deadmau5 - There Might Be Coffee
 * Deadmau5 ft. Grabbitz - Let Go
 * Deadmau5 ft. Wolfgang Gartner - Channel 42
+* Ed Sheeran - Gallway Girl
 * Game of Thrones Intro Theme
 * Hallelujah
 * Inna - More Than Friends
