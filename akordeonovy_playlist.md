@@ -3,6 +3,7 @@
 ## Slovenske
 
 * Horkyze Slize - Horna Dolna
+* IMT Smile ft Ondro Kandráč - Hej, Sokoly
 * Katka Knechtova - Do Batozka
 * Lojzo - Schöne Náci
 * Miro Jaroš ft. Petra Humeňanská - Na Dne Mora
@@ -14,6 +15,7 @@
 * Calvin Harris ft. Rihanna - This Is What You Came For
 * Coldplay - Adventure of a Lifetime
 * Coldplay - Up & Up
+* Duke Dumont ft. Jax Jones - I Got You
 * Deadmau5 - Closer
 * Deadmau5 - Fn Pig
 * Deadmau5 - Strobe
