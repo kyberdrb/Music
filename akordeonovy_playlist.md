@@ -36,9 +36,7 @@
 * Portal 1 - Still Alive
 * Rita Ora - Anywhere
 * Safri Duo - Baya Baya
-* Skrillex - Breathe (ft. Krewella & Ellie Goulding) (BnkR Extended Mix)
-* Skrillex - Summit
-* Skrillex Ft. Krewella - Breathe
+* Skrillex - Breathe (ft. Krewella & Ellie Goulding) (BnkR Extended Mix) a.k.a. Skrillex - Summit a.k.a. Skrillex Ft. Krewella - Breathe
 * Skyrim - Dragonborn (Dovahkin) Main Theme
 * Sultan the Magnificient Main Theme
 * Swedish House Mafia - Greyhound
