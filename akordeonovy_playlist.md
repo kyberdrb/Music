@@ -6,8 +6,6 @@
 * IMT Smile ft Ondro Kandráč - Hej, Sokoly
 * Katka Knechtova - Do Batozka
 * Lojzo - Schöne Náci
-* Miro Jaroš ft. Petra Humeňanská - Na Dne Mora
-* Peter Cmorik - Zivotne cesty
 * Zuzana Smatanova - Ceresne
 
 ## Zahranicne
@@ -27,20 +25,18 @@
 * Game of Thrones Intro Theme
 * Hallelujah
 * Inna - More Than Friends
-* Kanye West ft. Kid Cudi - Welcome to the Heartbreak (Intro - basove solo)
 * Little Boots - Earthquake
 * Little Boots - Earthquake (Fytch Remix)
 * Michael Canitrot - Young Forever
 * Pendulum - 9000 Miles
-* Pendulum - The Island Part 1
 * Portal 1 - Still Alive
 * Rita Ora - Anywhere
 * Safri Duo - Baya Baya
 * Skrillex - Breathe (ft. Krewella & Ellie Goulding) (BnkR Extended Mix) a.k.a. Skrillex - Summit a.k.a. Skrillex Ft. Krewella - Breathe
 * Skyrim - Dragonborn (Dovahkin) Main Theme
-* Sultan the Magnificient Main Theme
 * Swedish House Mafia - Greyhound
 * Swedish House Mafia - One
+* The Heavy - Short Change Hero
 * Tiesto ft. Sneaky Sound System - I Will Be Here
 * Tommy Largo - New Rhythm
 * Will I Am - This Is Love
