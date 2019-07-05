@@ -25,9 +25,8 @@
 * Game of Thrones Intro Theme
 * Hallelujah
 * Inna - More Than Friends
-* Little Boots - Earthquake
+* La Valse d'Amélie (Accordion version)
 * Little Boots - Earthquake (Fytch Remix)
-* Michael Canitrot - Young Forever
 * Pendulum - 9000 Miles
 * Portal 1 - Still Alive
 * Rita Ora - Anywhere
@@ -35,12 +34,9 @@
 * Skrillex - Breathe (ft. Krewella & Ellie Goulding) (BnkR Extended Mix) a.k.a. Skrillex - Summit a.k.a. Skrillex Ft. Krewella - Breathe
 * Skyrim - Dragonborn (Dovahkin) Main Theme
 * Swedish House Mafia - Greyhound
-* Swedish House Mafia - One
 * The Heavy - Short Change Hero
 * Tiesto ft. Sneaky Sound System - I Will Be Here
-* Tommy Largo - New Rhythm
 * Will I Am - This Is Love
-* Wolfgang Gartner - There and Back
 
 ## Vianocne
 
