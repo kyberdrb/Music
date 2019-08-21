@@ -4,7 +4,6 @@
 
 * Horkyze Slize - Horna Dolna
 * IMT Smile ft Ondro Kandráč - Hej, Sokoly
-* Katka Knechtova - Do Batozka
 * Lojzo - Schöne Náci
 * Zuzana Smatanova - Ceresne
 
