@@ -12,6 +12,7 @@
 * Calvin Harris - I'm Not Alone
 * Coldplay - Adventure of a Lifetime
 * Coldplay - Up & Up
+* David Guetta feat. Makeba - If We Ever
 * Duke Dumont ft. Jax Jones - I Got You
 * Deadmau5 - Closer
 * Deadmau5 - Fn Pig
