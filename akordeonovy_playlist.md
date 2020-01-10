@@ -19,7 +19,6 @@
 * Deadmau5 - Strobe
 * Deadmau5 - Suckfest9001 (1:11-1:15)
 * Deadmau5 - There Might Be Coffee
-* Deadmau5 ft. Grabbitz - Let Go
 * Ed Sheeran - Gallway Girl
 * Game of Thrones Intro Theme
 * Hallelujah
