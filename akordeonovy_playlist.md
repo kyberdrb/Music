@@ -16,6 +16,7 @@
 * Duke Dumont ft. Jax Jones - I Got You
 * Deadmau5 - Closer
 * Deadmau5 - Fn Pig
+* Deadmaus5 & Kaskade - I Remeber
 * Deadmau5 - Strobe
 * Deadmau5 - Suckfest9001 (1:11-1:15)
 * Deadmau5 - There Might Be Coffee
