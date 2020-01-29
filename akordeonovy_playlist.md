@@ -22,7 +22,6 @@
 * Deadmau5 - There Might Be Coffee
 * Ed Sheeran - Gallway Girl
 * Game of Thrones Intro Theme
-* Hallelujah
 * Inna - More Than Friends
 * La Valse d'Amélie (Accordion version)
 * Little Boots - Earthquake (Fytch Remix)
@@ -37,5 +36,3 @@
 * The Bloody Beetroots - Teen Wolf Theme (Alpha Remix) (start-0:17)
 * The Heavy - Short Change Hero
 * Tiesto ft. Sneaky Sound System - I Will Be Here
-* Wolfgang Gartner - There and Back
-* Wolfgang Gartner ft. K?d - Banshee
