@@ -12,7 +12,6 @@
 * Calvin Harris - I'm Not Alone
 * Coldplay - Adventure of a Lifetime
 * Coldplay - Up & Up
-* David Guetta feat. Makeba - If We Ever
 * Duke Dumont ft. Jax Jones - I Got You
 * Deadmau5 - Closer
 * Deadmau5 - Fn Pig
@@ -21,18 +20,13 @@
 * Deadmau5 - Suckfest9001 (1:11-1:15)
 * Deadmau5 - There Might Be Coffee
 * Ed Sheeran - Gallway Girl
-* Game of Thrones Intro Theme
-* Inna - More Than Friends
-* La Valse d'Amélie (Accordion version)
+* Amelie La Valse d'Amélie (Accordion version)
 * Little Boots - Earthquake (Fytch Remix)
 * Pendulum - 9000 Miles
-* Portal 1 - Still Alive
-* Portal 2- Turret Opera / Cara Mia Addio
-* Rita Ora - Anywhere
+* Portal 2 - Turret Opera / Cara Mia Addio
 * Safri Duo - Baya Baya
 * Skrillex - Breathe (ft. Krewella & Ellie Goulding) (BnkR Extended Mix) a.k.a. Skrillex - Summit a.k.a. Skrillex Ft. Krewella - Breathe
 * Skyrim - Dragonborn (Dovahkin) Main Theme
 * Swedish House Mafia - Greyhound
 * The Bloody Beetroots - Teen Wolf Theme (Alpha Remix) (start-0:17)
-* The Heavy - Short Change Hero
 * Tiesto ft. Sneaky Sound System - I Will Be Here
