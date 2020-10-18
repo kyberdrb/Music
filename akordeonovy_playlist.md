@@ -7,3 +7,4 @@
 * Safri Duo - Baya Baya
 * Etherwood - Haltija
 * Flood and Reason - Odyssey
+* Mark Knight & Funkagenda - Man With The Red Face
