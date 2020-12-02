@@ -8,3 +8,8 @@
 * Etherwood - Haltija
 * Flood and Reason - Odyssey
 * Mark Knight & Funkagenda - Man With The Red Face
+* Lewis Capaldi - Someone You Loved [piano cover]
+* Faul & Wad Ad vs. Pnau - Changes [sax solo]
+* Bakermat - One Day (Vandaag) [sax solo]
+* Silent Poets - Almost nothing feat. Okay Kaya [DEATH STRANDING Ending Song]
+* Linkin Park - Shadow Of The Day [instrumental]
