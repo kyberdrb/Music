@@ -19,3 +19,4 @@
 * Klangkarussell - Sonnentanz
 * Klingande - Jubel
 * MEDUZA - Paradise
+* Keane - Everybody's Changing
