@@ -55,3 +55,21 @@
       Ja nechápem zmysel tvojich slov.
       Len ticho lež pri mne, prosím.
       ...
+
+* Mária Miškechová - Mary
+
+      Tikáme o dušu,
+      tikáme bez hodiniek,
+      chcel by som zažiť zas,
+      ten pocit, keď všetko plynie.
+      Chcem vidieť, že všetko,
+      sa dá robiť aj hladko.
+      Do uška pošepkať:
+      Chcel by som byť tvoj Aďko.
+
+      ...
+
+      [pridaná strofa]
+      Praskám až do krvi,
+      od mrazu koža puká.
+      ....
