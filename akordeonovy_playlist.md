@@ -59,7 +59,7 @@
 * Mária Miškechová - Mary
 
       Tikáme o dušu,
-      tikáme bez hodiniek,
+      najlepšie ako vieme,
       chcel by som zažiť zas,
       ten pocit, keď všetko plynie.
       Chcem vidieť, že všetko,
@@ -72,4 +72,6 @@
       [pridaná strofa]
       Praskám až do krvi,
       od mrazu koža puká.
+      Kedy sa rozprúdi
+      sen, čo stále len hľadám?
       ....
