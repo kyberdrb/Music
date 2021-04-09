@@ -20,10 +20,12 @@
 
 ---
 
+* Hrdza - Slovensko Moje, Otčina Moja [titulná pieseň k filmu SVIŇA]
+* Robin Schulz Ft. Alida - In Your Eyes
 * MEDUZA - Paradise
 * Keane - Everybody's Changing
 * Linkin Park - Shadow Of The Day
-* Robin Schulz Ft. Alida - In Your Eyes
+* Syd Matters - Obstacles
 * IMT Smile - Vo Väzení
 * Hex - Cesta z Mesta
 * DESmod ft. Majself - Kométa (pre Gumpa) 
@@ -56,7 +58,7 @@
       Len ticho lež pri mne, prosím.
       ...
 
-* Mária Miškechová - Mary
+* Mirka Miškechová - Mary
 
       Tikáme o dušu,
       najlepšie ako vieme,
@@ -74,4 +76,17 @@
       od mrazu koža puká.
       Kedy sa rozprúdi
       sen, čo stále len hľadám?
-      ....
+      ...
+
+* Mirka Miškechová - Schizofrenik-Optimista (Žalúzie)
+
+      ...
+      nechávam si ilúzie,       [diagnóza takmer istá]
+      radšej zastriem žalúzie.  [schizofrenik-optimista]
+      ...
+
+* Mirka Miškechová - Kam ma cesty povedú?
+* Mirka Miškechová - Daruj mi paštrnák
+* Mirka Miškechová - Miňa Závut Sodoma
+* Mirka Miškechová - Teleport
+* Mirka Miškechová - 18 vecí, ktoré sa ťa nespýtam
