@@ -76,14 +76,44 @@
       od mrazu koža puká.
       Kedy sa rozprúdi
       sen, čo stále len hľadám?
+      Túžim sa dotýkať
+      nežne a pomaličky.
+      Dýchať tvoju vôňu,
+      kým mi nedôjde kyslík.
+
       ...
 
 * Mirka Miškechová - Schizofrenik-Optimista (Žalúzie)
 
       ...
+      presne rany, chybne strely,
+      dozivotne nedospely.
+      ...
+
+      ...
+      zbytocne su diagnozy,
+      clovek trpiaci,
+      v uzdravenie veriaci.
+      ...
+
+      ...
+      zbytocne su diagnozy,
+      človek smútiaci,
+      po súcite túžiaci.
+      ...
+
+      ...
       nechávam si ilúzie,       [diagnóza takmer istá]
       radšej zastriem žalúzie.  [schizofrenik-optimista]
       ...
+
+      ...
+      o stenu búcham si hlavu,
+      trasu sa mury ustavu,
+      pristroje hlasia poruchu,
+      a budem smutný,
+      tak velmi smutný,
+      juchuchú :(
 
 * Mirka Miškechová - Kam ma cesty povedú?
 * Mirka Miškechová - Daruj mi paštrnák
