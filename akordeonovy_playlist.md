@@ -26,6 +26,13 @@
 * Keane - Everybody's Changing
 * Linkin Park - Shadow Of The Day
 * Syd Matters - Obstacles
+* Okay Kaya - Symbiosis
+
+      ...
+      Symbiosis
+      it's a trait of baby. [it's a trade-off, baby/it's a trade-off, maybe]
+      ...
+
 * IMT Smile - Vo Väzení
 * Hex - Cesta z Mesta
 * DESmod ft. Majself - Kométa (pre Gumpa) 
