@@ -26,6 +26,7 @@
 * Keane - Everybody's Changing
 * Linkin Park - Shadow Of The Day
 * Syd Matters - Obstacles
+* Coldplay - A Sky Full Of Stars
 * Okay Kaya - Symbiosis
 
       ...
