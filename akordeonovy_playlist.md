@@ -20,7 +20,28 @@
 
 ---
 
-* Hrdza - Slovensko Moje, Otčina Moja [titulná pieseň k filmu SVIŇA]
+* Hrdza - Slovensko Moje, Otčina Moja [titulná pieseň k filmu SVIŇA] _[Svet môj jediný, planéta naša]_
+
+      Svet môj jediný, planéta naša, 
+      krásna si ako raj.
+      Na tvojich holiach, nádhery trónia, 
+      v údolí šumí háj.
+      Na tvojich poliach si spievali, predkovia naši pracovali. 
+      Svet môj jediný, planéta naša, 
+      krásna si ako raj.
+
+      Ej, mám planétu, 
+      nie hociakú, 
+      kde súcit nezahrá.
+      O ňu sa starám, 
+      radosť s ňou cítim,
+      s bolesťou súcitím.
+      Tu šumia hory a potoky,
+      dážď spieva krásne im do noty.
+      Svet môj jediný, 
+      planéta naša,
+      krásna si ako raj.
+
 * Robin Schulz Ft. Alida - In Your Eyes
 * MEDUZA - Paradise
 * Keane - Everybody's Changing
